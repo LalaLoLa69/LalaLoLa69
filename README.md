@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ariyan
+- 👋 Hi, I’m @shaiyan
 - 👀 I’m interested in chemistry
 - 🌱 I’m currently learning english
 - 💞️ I’m looking to collaborate on netflix
